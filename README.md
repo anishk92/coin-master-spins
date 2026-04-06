@@ -10,7 +10,24 @@ WhatsApp Channel https://whatsapp.com/channel/0029VbCVMkT5Ejy0gxHdiV0p
 
 Telegram Channel https://t.me/CoinMasterFreeSpinsDaily
 
+ How to Claim Free Spins
+
+Open this page on your mobile phone or tablet
+
+Tap any "Claim" button above to open the reward link
+
+The Coin Master app will launch automatically
+
+Your free spins and coins are added instantly 🎉
+
+Bookmark TechBoltX.com and return daily for new links
+
 Free spins are very important because they allow players to progress faster without spending real money.
+
+ About Coin Master
+Coin Master is a hugely popular mobile slot game developed by Moon Active. Players spin the slot machine to earn coins, attack other players' villages, shield their own, and raid for loot. Free spins are the lifeblood of the game — they let you progress, build, and compete without spending real money.
+
+📌 For all the latest daily reward links visit: techboltx.com/coin-master-rewards/
 
 🔗 Useful Links
 Daily Coin Master spins https://techboltx.com/coin-master-rewards/
